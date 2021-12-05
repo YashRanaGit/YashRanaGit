@@ -2,7 +2,7 @@
 
 -✈️ Vancouver, BC
 
-- 👀 I’m interested in Data Science, Data Engineering, and IT Program Management
+- 👀 Incoming Data Scientist , Data Analyst, and Machine Learning Engineer.
 
 - 🌱 I’m have on-going knowledge about
 
